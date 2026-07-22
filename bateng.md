@@ -1,299 +1,298 @@
-<h1>沙特阿美首席执行官警示石油市场或将长期供应中断，公司利润大幅飙升</h1>
-<p><strong>更新时间：</strong>2026年07月22日 11时57分16秒 (UTC+8)</p>
-<p>栏目：AI Builders Digest　主题：沙特阿美首席执行官警示石油市场或将长期供应中断，公司利润大幅飙升</p>
+<h1>少年作曲家谭凯岳原创音乐会伦敦奏响</h1>
+<p><strong>更新时间：</strong>2026年07月22日 13时16分34秒 (UTC+8)</p>
+<p>栏目：AI Builders Digest　主题：少年作曲家谭凯岳原创音乐会伦敦奏响</p>
 <h2>摘要</h2>
-<p>霍尔木兹海峡近乎停航，沙特阿美首席执行官警示石油市场将面临长期供应中断；与此同时，受益于油价走高及可通过陆上管道绕开这条关键水道转运出口，该公司利润大幅攀升。 沙特阿美首席执行官阿明・纳赛尔在邮件评论中表示：“即便霍尔木兹海峡贸易航运即刻恢复通行，石油市场仍需数月时间才能重新实现供需平衡。若当前航运受限局面再持续数周以上，预计供应中断将延续至2027 年，市场方能回归常态。” 此番表态凸显石油市场风险持续加剧。中东冲突已进入第三个月，美</p>
+<p>中新网伦敦6月22日电 (记者 欧阳开宇)当地时间21日，12岁作曲家谭凯岳原创交响乐专场音乐会在英国皇家音乐学院举行。谭凯岳身兼作曲、主持人、钢琴与马林巴演奏者三重身份，携手伦敦城市爱乐乐团，由指挥家奥尔西·奇纳米执棒，集中呈现其8至12岁创作的四部管弦乐作品，借音乐探讨自然、战争、人工智能等人类共同议题。 本场演出依次上演《探索者》《战争之泣》《夏田四季》与《AI文明：兴衰启示录》。开篇钢琴协奏曲勾勒人类奔赴荒漠、深海与火星的求索之</p>
 <h2>正文</h2>
-<p>霍尔木兹海峡近乎停航，沙特阿美首席执行官警示石油市场将面临长期供应中断；与此同时，受益于油价走高及可通过陆上管道绕开这条关键水道转运出口，该公司利润大幅攀升。</p>
-<p>沙特阿美首席执行官阿明・纳赛尔在邮件评论中表示：“即便霍尔木兹海峡贸易航运即刻恢复通行，石油市场仍需数月时间才能重新实现供需平衡。</p>
-<p>若当前航运受限局面再持续数周以上，预计供应中断将延续至2027 年，市场方能回归常态。</p>
-<p>”
-此番表态凸显石油市场风险持续加剧。</p>
-<p>中东冲突已进入第三个月，美伊双方旨在恢复海峡通航的谈判进展寥寥。</p>
-<p>敌对局势严重扰乱全球能源市场，霍尔木兹海峡航运近乎停滞，国际油价维持在每桶 100 美元附近高位震荡。</p>
-<p>原油及成品油价格上涨，推动沙特阿美一季度调整后净利润同比增长 26%，达 1260 亿里亚尔（折合 336 亿美元），超出市场分析师预期。</p>
-<p>公司维持股息派发规模，该分红对沙特经济至关重要。</p>
-<p>财报显示，公司原油、成品油及化工产品销量同比均实现增长。</p>
-<p>责任编辑：江学思</p>
+<p>中新网伦敦6月22日电 (记者 欧阳开宇)当地时间21日，12岁作曲家谭凯岳原创交响乐专场音乐会在英国皇家音乐学院举行。</p>
+<p>谭凯岳身兼作曲、主持人、钢琴与马林巴演奏者三重身份，携手伦敦城市爱乐乐团，由指挥家奥尔西·奇纳米执棒，集中呈现其8至12岁创作的四部管弦乐作品，借音乐探讨自然、战争、人工智能等人类共同议题。</p>
+<p>本场演出依次上演《探索者》《战争之泣》《夏田四季》与《AI文明：兴衰启示录》。</p>
+<p>开篇钢琴协奏曲勾勒人类奔赴荒漠、深海与火星的求索之路；第二交响乐直面全球冲突带来的生命创伤，在悲恸旋律中传递对和平的期盼；八岁所作《夏田四季》以牛津校园四季为底色，铺展纯粹童年记忆。</p>
+<p>五乐章交响《AI文明：兴衰启示录》为全场焦点，剖析科技扩张之下人类情感、理性与精神自由的存续困境。</p>
+<p>不同于晦涩的现代交响，谭凯岳的作品叙事清晰、画面感强烈，兼具宏大管弦架构与通俗共情力。</p>
+<p>演出中他全程讲解创作思考，将交响乐视作观察世界、反思时代的载体，跳出单纯展示少年天赋的展演模式，以超越年龄的悲悯视角叩问当代核心命题，收获现场观众高度认可。</p>
+<p>据悉，谭凯岳过往创作斩获十余项国际作曲奖项，作品曾登陆维也纳金色大厅、柏林爱乐音乐厅。</p>
+<p>本场音乐会是其2026夏季巡演首站，拉开六国演出序幕。</p>
+<p>7月24日，他将回到出生地北京，于中央歌剧院剧场演绎两部重磅交响，其兄谭凯文同台献演贝多芬钢琴协奏曲。</p>
 <h2>内链</h2>
-<h3>怎么看谷歌发布了 Gemini 3.6 flash和 3.5 lite，但是 pro 又缺席？</h3>
-<p>美国选战“提前开打”了吗<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260710_8q3f6.md">https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260710_8q3f6.md</a></p>
-<h3>6图看中国交通运输硬核成绩单</h3>
-<p>郑州一市场火灾2死2伤 系人为纵火<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260714_yc0ja.md">https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260714_yc0ja.md</a></p>
-<h3>微软计划用中国Kimi K3算法替换GPT</h3>
-<p>耐克抛弃滔搏影响多大<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260711_l38vf.md">https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260711_l38vf.md</a></p>
-<h3>智能变智障！低成本智能好物避坑指南！</h3>
-<p>演员凯莉霍特尔车祸去世<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260721_rfsnb.md">https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260721_rfsnb.md</a></p>
-<h3>《崩坏：星穹铁道》走近星穹——「远坂凛：如何在宇宙时代学会智能机」</h3>
-<p>那一天，全校同学都记住了我<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260712_xed04.md">https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260712_xed04.md</a></p>
-<h3>装修工人封顶将工友封进夹层</h3>
-<p>前妻甄珍得知谢贤去世哭到声音沙哑<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026ziran/blob/main/20260709_lp3os.md">https://github.com/pinappelslime-arch/2026ziran/blob/main/20260709_lp3os.md</a></p>
-<h3>最爱发钱老板透露公司不打卡不考核</h3>
-<p>如何看待最近一个多月 LOL 大面积掉帧卡顿，甚至98X3D+5080都无法幸免？这是什么原因导致的？<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026ziran/blob/main/20260714_8y95b.md">https://github.com/pinappelslime-arch/2026ziran/blob/main/20260714_8y95b.md</a></p>
-<h3>许昕回应为何不打乒超</h3>
-<p>总书记关怀引领基础教育改革发展<br><br>来源：<a href="https://github.com/pinappelslime-arch/20260718_08/blob/main/20260722_d0t3v.md">https://github.com/pinappelslime-arch/20260718_08/blob/main/20260722_d0t3v.md</a></p>
-<h3>媒体：全球担忧下一场粮食危机逼近</h3>
-<p>英国政府明抢中企钢厂背后<br><br>来源：<a href="https://github.com/scenesfe-cmyk/guangming202607/blob/main/1804_790.md">https://github.com/scenesfe-cmyk/guangming202607/blob/main/1804_790.md</a></p>
-<h3>笔记本电脑出问题去售后被要求更换主板，最后发现只是某一个电子元件损坏了，为什么他们都是换件而不维修呢？</h3>
-<p>人生第一辆车，家里给了20W，是选择拥抱新能源还是守旧买油车？<br><br>来源：<a href="https://github.com/scenesfe-cmyk/ziran202607/blob/main/1916_310.md">https://github.com/scenesfe-cmyk/ziran202607/blob/main/1916_310.md</a></p>
-<h3>仿佛打开了一本婴儿使用说明书</h3>
-<p>独居女子离世 遗产归公最新进展<br><br>来源：<a href="https://github.com/tdiwonmw7/20260718_12/blob/main/20260722_dnor4.md">https://github.com/tdiwonmw7/20260718_12/blob/main/20260722_dnor4.md</a></p>
-<h3>王鹤棣孟子义腿上吻</h3>
-<p>未来五年坐火车有这些变化<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/2016_012.md">https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/2016_012.md</a></p>
-<h3>斯塔默被拍在酒吧举杯畅饮</h3>
-<p>邓紫棋 歌手<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260718_6bkhk.md">https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260718_6bkhk.md</a></p>
-<h3>高市民调骤跌丨“现在向中国投降，是代价最小的时候”</h3>
-<p>利润翻倍 全球存储芯片股为何崩了<br><br>来源：<a href="https://github.com/vov6fghgsd/20260718_13/blob/main/20260722_f9n43.md">https://github.com/vov6fghgsd/20260718_13/blob/main/20260722_f9n43.md</a></p>
-<h3>重庆一医生因叫“叶绿素”走红</h3>
-<p>印度就4名船员遇袭身亡召见俄外交官<br><br>来源：<a href="https://github.com/dadiea51a/we5413442/blob/main/20260708_r4o9b.md">https://github.com/dadiea51a/we5413442/blob/main/20260708_r4o9b.md</a></p>
-<h3>回家吃饭之一到二十五集</h3>
-<p>谁的青春不神戳戳｜第十二期<br><br>来源：<a href="https://github.com/dadiea51a/we5413442/blob/main/20260713_7vpbq.md">https://github.com/dadiea51a/we5413442/blob/main/20260713_7vpbq.md</a></p>
-<h3>王鹤棣孟子义腿上吻</h3>
-<p>为什么日韩人民突然同步爱吃麻辣烫了？<br><br>来源：<a href="https://github.com/linhh234/we561z4ja/blob/main/20260706_omq7k.md">https://github.com/linhh234/we561z4ja/blob/main/20260706_omq7k.md</a></p>
-<h3>俄美元首今年或在深圳会晤</h3>
-<p>⚡灌 篮 高 手⚡<br><br>来源：<a href="https://github.com/linhh234/we561z4ja/blob/main/20260711_ibap1.md">https://github.com/linhh234/we561z4ja/blob/main/20260711_ibap1.md</a></p>
-<h3>这个培训班仅一等功臣就有50位</h3>
-<p>泽连斯基更换乌克兰武装部队总司令<br><br>来源：<a href="https://github.com/linhh234/we561z4ja/blob/main/20260720_45wdf.md">https://github.com/linhh234/we561z4ja/blob/main/20260720_45wdf.md</a></p>
-<h3>外交部谈菲挑衅生事</h3>
-<p>中国游客亲历印尼沉船<br><br>来源：<a href="https://github.com/albintuy62-byte/2026caodi/blob/main/20260712_9h15y.md">https://github.com/albintuy62-byte/2026caodi/blob/main/20260712_9h15y.md</a></p>
-<h2>外链</h2>
-<h3>6图看中国交通运输硬核成绩单</h3>
-<p>6图看中国交通运输硬核成绩单<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/907700492089.shtml">www.5g.hytriu.cn/gh/details/907700492089.shtml</a></p>
-<h3>高市民调骤跌丨“现在向中国投降，是代价最小的时候”</h3>
-<p>最近新冠发病有所抬头？上海疾控回应<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/686945309216.shtml">http://www.blog.hytriu.cn/article/details/686945309216.shtml</a></p>
-<h3>明星大侦探第一季</h3>
-<p>LV 法务假扮消费者买包后起诉百货店，商户一审被判赔 4 万，这种「钓鱼执法」行为是否合法？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/517411864212.shtml">www.5g.hytriu.cn/gh/details/517411864212.shtml</a></p>
-<h3>俄将继续打击为乌运输武器船只</h3>
-<p>告急！数以亿计的虫子 正在吞噬着整片森林！<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/098652009667.shtml">http://www.blog.hytriu.cn/article/details/098652009667.shtml</a></p>
-<h3>王楚然张凌赫新剧好看吗</h3>
-<p>A股再次迎来批量利好<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/206717921227.shtml">www.5g.hytriu.cn/gh/details/206717921227.shtml</a></p>
-<h3>博主：俄乌空袭投入新武器</h3>
-<p>乌克兰高层爆发严重内斗<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/571769438408.shtml">http://www.blog.hytriu.cn/article/details/571769438408.shtml</a></p>
-<h3>斯塔默卸任后穿运动鞋直奔酒吧</h3>
-<p>青春环游记第三季<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/649357822063.shtml">www.5g.hytriu.cn/gh/details/649357822063.shtml</a></p>
-<h3>这些地方将有8级以上雷暴大风</h3>
-<p>中国船员被韩方扣押期间死亡家属赴韩<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/816692195276.shtml">http://www.blog.hytriu.cn/article/details/816692195276.shtml</a></p>
-<h3>最新中国500强</h3>
-<p>小红书回应“上市因前员工举报受阻”<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/874403838628.shtml">www.5g.hytriu.cn/gh/details/874403838628.shtml</a></p>
-<h3>一生一世</h3>
-<p>最新中国500强<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/549873655384.shtml">http://www.blog.hytriu.cn/article/details/549873655384.shtml</a></p>
-<h3>大熊猫“福虎”嘴角生疮</h3>
-<p>有些领导为什么特别喜欢开会，连着开好几天，他们不累吗？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/703427332607.shtml">www.5g.hytriu.cn/gh/details/703427332607.shtml</a></p>
-<h3>智能变智障！低成本智能好物避坑指南！</h3>
-<p>苗凯获大田赛十项全能冠军<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/053625678133.shtml">http://www.blog.hytriu.cn/article/details/053625678133.shtml</a></p>
-<h3>C 罗点赞批 FIFA 腐败、偏向阿根廷的节目切片，他想表达什么？</h3>
-<p>英国政府明抢中企钢厂背后<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/101045130648.shtml">www.5g.hytriu.cn/gh/details/101045130648.shtml</a></p>
-<h3>穆祉丞回应常州演唱会哭了</h3>
-<p>三杯雞，到底是哪三杯呢？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/097412843644.shtml">http://www.blog.hytriu.cn/article/details/097412843644.shtml</a></p>
-<h3>国台办回应台当局附和菲方挑衅</h3>
-<p>雀骨<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/316399729278.shtml">www.5g.hytriu.cn/gh/details/316399729278.shtml</a></p>
-<h3>《功夫女足》票房破16亿</h3>
-<p>7旬阿姨花5千包车远行领“3亿奖金”<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/410766200075.shtml">http://www.blog.hytriu.cn/article/details/410766200075.shtml</a></p>
-<h3>高中生被刺死案事发地疑为涉黄场所</h3>
-<p>改写“意难平”《幻影忍者》二创挑战全新结局重磅放出⚡️<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/874325842662.shtml">www.5g.hytriu.cn/gh/details/874325842662.shtml</a></p>
-<h3>全国最后一位长征女红军逝世</h3>
-<p>恋与深空为何能让13岁女孩狂刷3万<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/890087557350.shtml">http://www.blog.hytriu.cn/article/details/890087557350.shtml</a></p>
-<h3>未来五年坐火车有这些变化</h3>
-<p>泰山把人间仙境铺在眼前<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/416323925828.shtml">www.5g.hytriu.cn/gh/details/416323925828.shtml</a></p>
-<h3>关于我的小岛日常</h3>
-<p>菲方在仁爱礁上演闹剧有何意图<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/653727497395.shtml">http://www.blog.hytriu.cn/article/details/653727497395.shtml</a></p>
-<h3>怎么看谷歌发布了 Gemini 3.6 flash和 3.5 lite，但是 pro 又缺席？</h3>
-<p>500岁的“鸭子” 有多潮<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/032389211429.shtml">www.5g.hytriu.cn/gh/details/032389211429.shtml</a></p>
-<h3>Danielle发了ins</h3>
-<p>如何看待乌军总司令西尔斯基被解职，德拉帕特继任？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/120484990213.shtml">http://www.blog.hytriu.cn/article/details/120484990213.shtml</a></p>
-<h3>勇者的孩子也要成为勇者吗</h3>
-<p>张凌赫新剧又“黑红”了<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/547899277729.shtml">www.5g.hytriu.cn/gh/details/547899277729.shtml</a></p>
+<h3>开局之年看中国解码创新浙江</h3>
+<p>业内：半导体需求基本面依然稳固<br><br>来源：<a href="https://github.com/vov6fghgsd/ewklwen4/blob/main/20260711_3js2f.md">https://github.com/vov6fghgsd/ewklwen4/blob/main/20260711_3js2f.md</a></p>
 <h3>三杯雞，到底是哪三杯呢？</h3>
-<p>小红书大模型IMO满分夺金<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/152787428569.shtml">http://www.blog.hytriu.cn/article/details/152787428569.shtml</a></p>
-<h3>前妻甄珍得知谢贤去世哭到声音沙哑</h3>
-<p>以色列空袭加沙地带致12人死亡<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/135674043539.shtml">www.5g.hytriu.cn/gh/details/135674043539.shtml</a></p>
-<h3>这些地方将有8级以上雷暴大风</h3>
-<p>29岁青年志愿者救灾一线去世<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/464119691561.shtml">http://www.blog.hytriu.cn/article/details/464119691561.shtml</a></p>
-<h3>成龙近 3 年来社交账号所发布内容全是对好友的悼念和告别，对此你有哪些感触？</h3>
-<p>“养老服务师考试10月开考”不实<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/477978013449.shtml">www.5g.hytriu.cn/gh/details/477978013449.shtml</a></p>
-<h3>斯塔默卸任后穿运动鞋直奔酒吧喝酒</h3>
-<p>张籽沐刘楚恬15年闺蜜<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/465961103521.shtml">http://www.blog.hytriu.cn/article/details/465961103521.shtml</a></p>
-<h3>周生如故</h3>
-<p>如何看待月之暗面否认 Kimi K3 蒸馏现有模型，称性能跃升的核心来自底层原创架构创新？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/109949019583.shtml">www.5g.hytriu.cn/gh/details/109949019583.shtml</a></p>
-<h3>王楚然张凌赫新剧好看吗</h3>
-<p>扫黑风暴<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/392423561564.shtml">http://www.blog.hytriu.cn/article/details/392423561564.shtml</a></p>
-<h3>今年蚊子变多了吗</h3>
-<p>5分19秒546荣登历史TOP1！揭秘当代底盘电控骚操作<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/080714151633.shtml">www.5g.hytriu.cn/gh/details/080714151633.shtml</a></p>
-<h3>恋与深空为何能让13岁女孩狂刷3万</h3>
-<p>西甲主席强烈批评国际足联<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/165185322940.shtml">http://www.blog.hytriu.cn/article/details/165185322940.shtml</a></p>
-<h3>菲律宾为何此时在仁爱礁制造冲突</h3>
-<p>🐔好 坤 不 挑 曲⚡<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/360248333810.shtml">www.5g.hytriu.cn/gh/details/360248333810.shtml</a></p>
-<h3>第一炉香</h3>
-<p>曝张雅琪和万俊丰同行照片<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/897988830731.shtml">http://www.blog.hytriu.cn/article/details/897988830731.shtml</a></p>
-<h3>烂麻了，又着了他的道，周星驰欠我电影票</h3>
-<p>关于我的小岛日常<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/416096266846.shtml">www.5g.hytriu.cn/gh/details/416096266846.shtml</a></p>
-<h3>父亲在家长群公开夫妻矛盾被认定家暴</h3>
-<p>宗馥莉18亿美元资产被冻结<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/986913896283.shtml">http://www.blog.hytriu.cn/article/details/986913896283.shtml</a></p>
-<h3>如何看待申真谞二比一战胜围棋人工智能“KataGo”？</h3>
-<p>差点被烟管单杀了<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/916305524365.shtml">www.5g.hytriu.cn/gh/details/916305524365.shtml</a></p>
-<h3>闯荡江湖才发现刀可以双持！</h3>
-<p>汪苏泷许嵩徐良演唱会撞档<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/742842817931.shtml">http://www.blog.hytriu.cn/article/details/742842817931.shtml</a></p>
-<h3>阿根廷主帅回应失利阴谋论</h3>
-<p>面试因无证驾驶计算机被拒了<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/911226247094.shtml">www.5g.hytriu.cn/gh/details/911226247094.shtml</a></p>
-<h3>冉莹颖，女强人不大像，倒是像NPD。。。</h3>
-<p>正常人打减肥针代价远高于收益<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/323124025765.shtml">http://www.blog.hytriu.cn/article/details/323124025765.shtml</a></p>
-<h3>Kimi K3有何亮点</h3>
-<p>关于我的小岛日常<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/054305045921.shtml">www.5g.hytriu.cn/gh/details/054305045921.shtml</a></p>
-<h3>官方：将推动机场高铁站异地还车服务</h3>
-<p>国台办回应台当局附和菲方挑衅<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/848402056014.shtml">http://www.blog.hytriu.cn/article/details/848402056014.shtml</a></p>
-<h3>海尔空调海外销量中企第一</h3>
-<p>护航三次打暗号背刺我和队友？但是我找到了你的俱乐部<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/736501792669.shtml">www.5g.hytriu.cn/gh/details/736501792669.shtml</a></p>
-<h3>包知了猴饺子一转眼馅跑了</h3>
-<p>史蒂夫执教中国队！【AI全民制作人】<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/846944869238.shtml">http://www.blog.hytriu.cn/article/details/846944869238.shtml</a></p>
-<h3>七旬阿姨花五千包车去直播间领三亿</h3>
-<p>俄罗斯与白俄罗斯的集体记忆<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/269810153634.shtml">www.5g.hytriu.cn/gh/details/269810153634.shtml</a></p>
-<h3>菲律宾为何此时在仁爱礁制造冲突</h3>
-<p>护航三次打暗号背刺我和队友？但是我找到了你的俱乐部<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/505216003986.shtml">http://www.blog.hytriu.cn/article/details/505216003986.shtml</a></p>
-<h3>主体性强的人会觉得谈恋爱很无聊</h3>
-<p>国台办驳斥赖清德分裂谬论<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/754138751082.shtml">www.5g.hytriu.cn/gh/details/754138751082.shtml</a></p>
-<h3>国民党将征召6县市首长拼连任</h3>
-<p>爸爸追着教训儿子被儿子带到沟里<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/204101099013.shtml">http://www.blog.hytriu.cn/article/details/204101099013.shtml</a></p>
-<h3>毒液2</h3>
-<p>告急！数以亿计的虫子 正在吞噬着整片森林！<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/334048217203.shtml">www.5g.hytriu.cn/gh/details/334048217203.shtml</a></p>
-<h3>《功夫女足》票房破16亿</h3>
-<p>俄罗斯远程战略轰炸机巡航日本海<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/361103778741.shtml">http://www.blog.hytriu.cn/article/details/361103778741.shtml</a></p>
-<h3>这些地方将有8级以上雷暴大风</h3>
-<p>演员凯莉霍特尔车祸去世<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/382085958469.shtml">www.5g.hytriu.cn/gh/details/382085958469.shtml</a></p>
-<h3>漂流哥回应做公益不接受捐赠</h3>
-<p>特朗普想让FIFA主席当联合国秘书长<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/539010653912.shtml">http://www.blog.hytriu.cn/article/details/539010653912.shtml</a></p>
-<h3>爱很美味</h3>
-<p>黄海部分海域实弹射击<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/035182450604.shtml">www.5g.hytriu.cn/gh/details/035182450604.shtml</a></p>
-<h3>唐宁街来了个“新太医”，伯纳姆可有良策医英疾厉？</h3>
-<p>最后一位长征女红军逝世<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/799663615506.shtml">http://www.blog.hytriu.cn/article/details/799663615506.shtml</a></p>
-<h3>三角洲三选一挑战赛 选手装备：少爷头少爷能拿下天才少年吗？</h3>
-<p>蜘蛛侠:平行宇宙<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/836886978034.shtml">www.5g.hytriu.cn/gh/details/836886978034.shtml</a></p>
-<h3>日结高薪兼职竟成黄牛工具人</h3>
-<p>美国选战“提前开打”了吗<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/686480352116.shtml">http://www.blog.hytriu.cn/article/details/686480352116.shtml</a></p>
-<h3>介文汲：菲方故意制造事端</h3>
-<p>救灾小伙劳累过度去世 好友哭着回忆<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/178260679747.shtml">www.5g.hytriu.cn/gh/details/178260679747.shtml</a></p>
-<h3>马犬被洪水冲走10天奇迹回家</h3>
-<p>承认吧，你也无法拒绝陈都灵这样的队友！<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/026861692911.shtml">http://www.blog.hytriu.cn/article/details/026861692911.shtml</a></p>
-<h3>利润翻倍 全球存储芯片股为何崩了</h3>
-<p>耐克中国内地销售格局将大变<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/762489187080.shtml">www.5g.hytriu.cn/gh/details/762489187080.shtml</a></p>
-<h3>雷军称澎程每三年或3万km才需保养</h3>
-<p>日元跌破1美元兑163日元关口，创下近40年来新低，日本央行已加息至1%，政府最新政策有何意义？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/788808712864.shtml">http://www.blog.hytriu.cn/article/details/788808712864.shtml</a></p>
-<h3>原来狗狗的思念也这么深</h3>
-<p>10岁女孩还原《功夫女足》回旋踢<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/332840833503.shtml">www.5g.hytriu.cn/gh/details/332840833503.shtml</a></p>
-<h3>Kimi新模型登顶多个榜单第一</h3>
-<p>阿根廷全队球员赛后集体拒绝采访，媒体等待近两小时无果，阿根廷足协或因此受罚，如何看待这一行为？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/837205019666.shtml">http://www.blog.hytriu.cn/article/details/837205019666.shtml</a></p>
-<h3>全国最后一位长征女红军王全英逝世</h3>
-<p>女子漂流翻船 质疑附近安全员不施救<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/667212445808.shtml">www.5g.hytriu.cn/gh/details/667212445808.shtml</a></p>
-<h3>《崩坏：星穹铁道》作为假面愚者，火花等一众老愚者是否太有底线了？花火这句台词算不算回旋镖？</h3>
-<p>国台办回应台当局附和菲方挑衅<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/787298908983.shtml">http://www.blog.hytriu.cn/article/details/787298908983.shtml</a></p>
-<h3>92岁无儿无女老人离世留500万遗产</h3>
-<p>“北丐先生”被指老鼠爬上客人肩膀<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/839199632274.shtml">www.5g.hytriu.cn/gh/details/839199632274.shtml</a></p>
-<h3>如何看待网传 pdf 抨击 Kimi 等国内大模型蒸馏但被网友分析反驳？真实性如何？</h3>
-<p>人工智能专业“杀疯了” 分数普涨<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/476512843968.shtml">http://www.blog.hytriu.cn/article/details/476512843968.shtml</a></p>
-<h3>郑州2死2伤火灾系人为纵火 嫌犯被捕</h3>
-<p>如何看待乒超被曝禁止外协会球员参赛？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/937382927113.shtml">www.5g.hytriu.cn/gh/details/937382927113.shtml</a></p>
-<h3>国台办回应张雪机车在台开店受阻</h3>
-<p>美提议2027年6月开审所谓马杜罗案<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/693405526586.shtml">http://www.blog.hytriu.cn/article/details/693405526586.shtml</a></p>
-<h3>夏天总开空调和不开空调的人谁更健康</h3>
-<p>AI制药加剧“猴荒”<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/511984852773.shtml">www.5g.hytriu.cn/gh/details/511984852773.shtml</a></p>
-<h3>英伟达DLSS 5新实机演示</h3>
-<p>无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/221477556836.shtml">http://www.blog.hytriu.cn/article/details/221477556836.shtml</a></p>
-<h3>Kimi 创始人杨植麟回国创业引热议，怎样看待他的选择？</h3>
-<p>女孩也很好但新生男孩越来越多<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/828652538900.shtml">www.5g.hytriu.cn/gh/details/828652538900.shtml</a></p>
-<h3>穿越战锤20年，全团战死，唯你幸存退役，你的后半生会如何度过？</h3>
-<p>全程高能！在MC里举办世界杯有多震撼？！？「天门世界杯」<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/780264738203.shtml">http://www.blog.hytriu.cn/article/details/780264738203.shtml</a></p>
-<h3>李惠仁瘦了好多</h3>
-<p>樊振东将缺席本届乒超联赛<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/088452935493.shtml">www.5g.hytriu.cn/gh/details/088452935493.shtml</a></p>
-<h3>花儿与少年8</h3>
-<p>男子将降压药片掰开吃后当场昏迷<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/111854186992.shtml">http://www.blog.hytriu.cn/article/details/111854186992.shtml</a></p>
-<h3>洋酒配麦片vs白酒配咸菜，谁才是老喝家？【多新鲜呐ep25｜于谦的视频播客】</h3>
-<p>天道<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/771706740400.shtml">www.5g.hytriu.cn/gh/details/771706740400.shtml</a></p>
-<h3>新乐器！订书钉演奏《千本樱》</h3>
-<p>男子上厕所撞见两米长大蛇<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/610518173143.shtml">http://www.blog.hytriu.cn/article/details/610518173143.shtml</a></p>
-<h3>特朗普希望因凡蒂诺接任联合国秘书长</h3>
-<p>陈妍希说身体不好但脑子还行<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/762751939042.shtml">www.5g.hytriu.cn/gh/details/762751939042.shtml</a></p>
-<h3>厦门大学福州大学录取通知书正在派送</h3>
-<p>表志勋出车祸<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/373777047519.shtml">http://www.blog.hytriu.cn/article/details/373777047519.shtml</a></p>
-<h3>官方：将推动机场高铁站异地还车服务</h3>
-<p>告急！数以亿计的虫子 正在吞噬着整片森林！<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/199265486547.shtml">www.5g.hytriu.cn/gh/details/199265486547.shtml</a></p>
-<h3>中方全程监管菲律宾转运伤员</h3>
-<p>7旬阿姨花5千包车远行领“3亿奖金”<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/998711006517.shtml">http://www.blog.hytriu.cn/article/details/998711006517.shtml</a></p>
-<h3>哥斯拉大战金刚</h3>
-<p>Linux中“一切皆文件”是什么意思？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/485296400297.shtml">www.5g.hytriu.cn/gh/details/485296400297.shtml</a></p>
-<h3>明星大侦探第一季</h3>
-<p>那达慕赛马现场出现真“马尾”<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/945362671055.shtml">http://www.blog.hytriu.cn/article/details/945362671055.shtml</a></p>
-<h3>美媒称朗普政府正在研究停火可能性，也在为全面战争做准备，新一轮临时停火有多大落地可能性？</h3>
-<p>康熙明知韦小宝捞钱无数，为什么从来不办他？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/847877142360.shtml">www.5g.hytriu.cn/gh/details/847877142360.shtml</a></p>
-<h3>我国将逐步提高基础养老金</h3>
-<p>许昕回应为何不打乒超<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/371155096436.shtml">http://www.blog.hytriu.cn/article/details/371155096436.shtml</a></p>
-<h3>冉莹颖，女强人不大像，倒是像NPD。。。</h3>
-<p>小红书大模型IMO满分夺金<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/996584095959.shtml">www.5g.hytriu.cn/gh/details/996584095959.shtml</a></p>
-<h3>利润翻倍 全球存储芯片股为何崩了</h3>
-<p>“按骑手学历收配送费”系谣言<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/264025537873.shtml">http://www.blog.hytriu.cn/article/details/264025537873.shtml</a></p>
-<h3>《贺子珍》</h3>
-<p>郑州2死2伤火灾系人为纵火 嫌犯被捕<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/228038824940.shtml">www.5g.hytriu.cn/gh/details/228038824940.shtml</a></p>
-<h3>Kimi 员工震惊和 OpenAI 算力的差距，为什么在这么大差距下 Kimi 还能做出来 K3 ？</h3>
-<p>网友发现很多 KTV 都没有 MV 了，全是奇怪的 AI 画面，为什么会这样？你有遇到这种情况吗？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/630608677134.shtml">http://www.blog.hytriu.cn/article/details/630608677134.shtml</a></p>
-<h3>日结高薪兼职竟成黄牛工具人</h3>
-<p>建议家里空调温度最怕热的人来定<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/025333174640.shtml">www.5g.hytriu.cn/gh/details/025333174640.shtml</a></p>
-<h3>10岁女孩还原《功夫女足》回旋踢</h3>
-<p>（知识科普）盘点突击位全干员技能增强削弱史，来看看你都了解多少？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/840739365659.shtml">http://www.blog.hytriu.cn/article/details/840739365659.shtml</a></p>
-<h3>表志勋出车祸</h3>
-<p>“看到AI脸产生生理性厌恶”<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/377630379945.shtml">www.5g.hytriu.cn/gh/details/377630379945.shtml</a></p>
-<h3>三杯雞，到底是哪三杯呢？</h3>
-<p>斯塔默被拍在酒吧举杯畅饮<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/372916400370.shtml">http://www.blog.hytriu.cn/article/details/372916400370.shtml</a></p>
-<h3>以色列空袭加沙地带致12人死亡</h3>
-<p>奔跑吧·黄河篇第二季<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/137738813589.shtml">www.5g.hytriu.cn/gh/details/137738813589.shtml</a></p>
+<p>景区调取监控付费生成游览视频遭质疑<br><br>来源：<a href="https://github.com/vov6fghgsd/ewklwen4/blob/main/20260717_at8qz.md">https://github.com/vov6fghgsd/ewklwen4/blob/main/20260717_at8qz.md</a></p>
+<h3>承认吧，你也无法拒绝陈都灵这样的队友！</h3>
+<p>商场女厕内巨大男性壁画被指低俗<br><br>来源：<a href="https://github.com/hevwybsv-art/shenghuo202607/blob/main/1716_647.md">https://github.com/hevwybsv-art/shenghuo202607/blob/main/1716_647.md</a></p>
+<h3>汪明荃认谢婷婷做干女儿</h3>
+<p>因凡蒂诺：阿根廷精神鼓舞数百万人<br><br>来源：<a href="https://github.com/hubbygoing144-wq/caodi202607/blob/main/1804_094.md">https://github.com/hubbygoing144-wq/caodi202607/blob/main/1804_094.md</a></p>
+<h3>人工智能专业“杀疯了” 分数普涨</h3>
+<p>BBA集体降价 销售：价格还能谈<br><br>来源：<a href="https://github.com/hubbygoing144-wq/yinyue202607/blob/main/1816_484.md">https://github.com/hubbygoing144-wq/yinyue202607/blob/main/1816_484.md</a></p>
 <h3>沙丘</h3>
-<p>王毅：菲军警部分势力蓄意挑衅<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/088633740265.shtml">http://www.blog.hytriu.cn/article/details/088633740265.shtml</a></p>
-<h3>想回到记忆里的未来</h3>
-<p>勇者的孩子也要成为勇者吗<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/704653145207.shtml">www.5g.hytriu.cn/gh/details/704653145207.shtml</a></p>
-<h3>那些在别的行业发光发热的东西</h3>
-<p>山西：拒不整改永久封井<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/297427999764.shtml">http://www.blog.hytriu.cn/article/details/297427999764.shtml</a></p>
-<h3>美AI学者喊话特朗普跟中国合作</h3>
-<p>金牌调解<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/111948681594.shtml">www.5g.hytriu.cn/gh/details/111948681594.shtml</a></p>
-<h3>俄罗斯远程战略轰炸机巡航日本海</h3>
-<p>英伟达DLSS 5新实机演示<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/376802967864.shtml">http://www.blog.hytriu.cn/article/details/376802967864.shtml</a></p>
-<h3>美AI学者喊话特朗普跟中国合作</h3>
-<p>如何看待网传 pdf 抨击 Kimi 等国内大模型蒸馏但被网友分析反驳？真实性如何？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/429748615777.shtml">www.5g.hytriu.cn/gh/details/429748615777.shtml</a></p>
-<h3>耐克与滔搏线上合作将终止</h3>
-<p>仿佛打开了一本婴儿使用说明书<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/390921942759.shtml">http://www.blog.hytriu.cn/article/details/390921942759.shtml</a></p>
-<h3>宗馥莉上诉被驳 18亿美元资产仍冻结</h3>
-<p>唐宁街来了个“新太医”，伯纳姆可有良策医英疾厉？<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/572197761606.shtml">www.5g.hytriu.cn/gh/details/572197761606.shtml</a></p>
-<h3>毒液2</h3>
-<p>官方：将推动机场高铁站异地还车服务<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/118405702462.shtml">http://www.blog.hytriu.cn/article/details/118405702462.shtml</a></p>
-<h3>黄海部分海域实弹射击</h3>
-<p>武警战士负重“水上漂”<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/092004617698.shtml">www.5g.hytriu.cn/gh/details/092004617698.shtml</a></p>
-<h3>印度召见俄罗斯外交官</h3>
-<p>媒体评“纸上稻田”事件<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/048820860487.shtml">http://www.blog.hytriu.cn/article/details/048820860487.shtml</a></p>
-<h3>感谢每一份付出，只要信念仍在，我们终会再次出发</h3>
-<p>明星大侦探第一季<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/293510715541.shtml">www.5g.hytriu.cn/gh/details/293510715541.shtml</a></p>
-<h3>伊朗：若美袭击核设施 地区冲突升级</h3>
-<p>加盟卖塑身衣能年入千万？投资人血亏<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/787810850045.shtml">http://www.blog.hytriu.cn/article/details/787810850045.shtml</a></p>
-<h3>如何看待最近一个多月 LOL 大面积掉帧卡顿，甚至98X3D+5080都无法幸免？这是什么原因导致的？</h3>
-<p>未来五年坐火车有这些变化<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/022671116806.shtml">www.5g.hytriu.cn/gh/details/022671116806.shtml</a></p>
-<h3>介文汲：菲方故意制造事端</h3>
-<p>aespa预告<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/256457919379.shtml">http://www.blog.hytriu.cn/article/details/256457919379.shtml</a></p>
-<h3>伊朗：若美袭击核设施 地区冲突升级</h3>
-<p>极限挑战第一季<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/498390549881.shtml">www.5g.hytriu.cn/gh/details/498390549881.shtml</a></p>
-<h3>比亚迪到底在电池里装了什么</h3>
-<p>《功夫女足》为何评价两极分化？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/780099864470.shtml">http://www.blog.hytriu.cn/article/details/780099864470.shtml</a></p>
-<h3>“中药首富”马兴田夫妇被判赔14亿</h3>
-<p>女孩3个月内为乙女游戏充值7000多元<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/605027755168.shtml">www.5g.hytriu.cn/gh/details/605027755168.shtml</a></p>
-<h3>点击即玩世界上最爽的大狗叫模拟器 【B站AI创造公开赛】</h3>
-<p>唐宁街来了个“新太医”，伯纳姆可有良策医英疾厉？<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/372939345309.shtml">http://www.blog.hytriu.cn/article/details/372939345309.shtml</a></p>
+<p>电影功夫女足<br><br>来源：<a href="https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260708_em4hy.md">https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260708_em4hy.md</a></p>
+<h3>Ador回应NewJeans4人组回归</h3>
+<p>朋友圈和微博的差别belike<br><br>来源：<a href="https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260712_rhlcg.md">https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260712_rhlcg.md</a></p>
+<h3>韩方否认中国船员曾6次求救</h3>
+<p>100万人玩过的哈基米模拟器<br><br>来源：<a href="https://github.com/lindsayawren-sys/20260718_03/blob/main/20260721_eo955.md">https://github.com/lindsayawren-sys/20260718_03/blob/main/20260721_eo955.md</a></p>
+<h3>七旬阿姨花五千包车去直播间领三亿</h3>
+<p>大狗嚼 这一口会很疯狂！<br><br>来源：<a href="https://github.com/lindsayawren-sys/mmiaoenqa1/blob/main/20260718_f65sk.md">https://github.com/lindsayawren-sys/mmiaoenqa1/blob/main/20260718_f65sk.md</a></p>
+<h3>最新中国500强</h3>
+<p>辛柏青谈及朱媛媛时不愿过多分享<br><br>来源：<a href="https://github.com/linhh234/20260718_10/blob/main/20260722_vtlmi.md">https://github.com/linhh234/20260718_10/blob/main/20260722_vtlmi.md</a></p>
+<h3>是一群胡迪警长来了喔！猥琐四重奏</h3>
+<p>阿根廷在2026年和2014年都是亚军，为什么2014年决赛之后阿根廷表现正常，今年就引发争议了呢？<br><br>来源：<a href="https://github.com/mejiastanle/20260718_05/blob/main/20260718_k8vmo.md">https://github.com/mejiastanle/20260718_05/blob/main/20260718_k8vmo.md</a></p>
+<h3>Kimi新模型登顶多个榜单第一</h3>
+<p>新疆测到50℃了<br><br>来源：<a href="https://github.com/mejiastanle/20260718_18/blob/main/20260720_g3e2w.md">https://github.com/mejiastanle/20260718_18/blob/main/20260720_g3e2w.md</a></p>
+<h3>五哈和他们的朋友</h3>
+<p>李小璐被指疑似生二胎<br><br>来源：<a href="https://github.com/mejiastanle/msdfe52gs/blob/main/20260709_yr5b7.md">https://github.com/mejiastanle/msdfe52gs/blob/main/20260709_yr5b7.md</a></p>
+<h3>Danielle发了ins</h3>
+<p>史上最赚世界杯<br><br>来源：<a href="https://github.com/mejiastanle/msdfe52gs/blob/main/20260714_okdfn.md">https://github.com/mejiastanle/msdfe52gs/blob/main/20260714_okdfn.md</a></p>
+<h3>名人堂将为库里推出专属展览</h3>
+<p>三杯雞，到底是哪三杯呢？<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260710_p3u8t.md">https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260710_p3u8t.md</a></p>
+<h3>无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。</h3>
+<p>七旬阿姨花五千包车去直播间领三亿<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260715_orowm.md">https://github.com/pinappelslime-arch/2026aiqing/blob/main/20260715_orowm.md</a></p>
+<h3>Kimi新模型登顶多个榜单第一</h3>
+<p>一见倾心<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260712_0gcz3.md">https://github.com/pinappelslime-arch/2026shenghuo/blob/main/20260712_0gcz3.md</a></p>
+<h3>穆祉丞回应常州演唱会哭了</h3>
+<p>U19国足人员储备如何<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260708_jhj6n.md">https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260708_jhj6n.md</a></p>
+<h3>三杯雞，到底是哪三杯呢？</h3>
+<p>全员团灭！漫威大结局《复联5：毁灭日》正式预告解析<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260713_bg1ef.md">https://github.com/pinappelslime-arch/2026yunhai/blob/main/20260713_bg1ef.md</a></p>
 <h3>奔跑吧·黄河篇第二季</h3>
-<p>詹姆斯：新赛季东部将会非常令人兴奋<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/295185038398.shtml">www.5g.hytriu.cn/gh/details/295185038398.shtml</a></p>
-<h3>Cos马皇后，用合肥话怼朱元璋！</h3>
-<p>英国政府明抢中企钢厂背后<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/653088926788.shtml">http://www.blog.hytriu.cn/article/details/653088926788.shtml</a></p>
+<p>普京将率团出席深圳APEC峰会<br><br>来源：<a href="https://github.com/pinappelslime-arch/2026ziran/blob/main/20260709_xjctz.md">https://github.com/pinappelslime-arch/2026ziran/blob/main/20260709_xjctz.md</a></p>
+<h2>外链</h2>
+<h3>告急！数以亿计的虫子 正在吞噬着整片森林！</h3>
+<p>青风吹又生<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/098912021670.shtml</code></p>
+<h3>勇者的孩子也要成为勇者吗</h3>
+<p>曝谢贤离世前一年已出现认知障碍<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/217514276739.shtml</code></p>
+<h3>NOVA战胜EDG赛后数据</h3>
+<p>内地买家正在“扫货”香港豪宅<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/482187297425.shtml</code></p>
+<h3>日本指礁为“岛”闹剧还要演多久</h3>
+<p>曝张柏芝月中火速安排儿子返港陪谢贤<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/523477250416.shtml</code></p>
+<h3>厦门大学福州大学录取通知书正在派送</h3>
+<p>汪苏泷官宣香港站<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/775870022711.shtml</code></p>
+<h3>沙丘</h3>
+<p>俄美元首今年或在深圳会晤<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/846085311106.shtml</code></p>
+<h3>点击即玩世界上最爽的哈基米模拟器 【B站AI创造公开赛】</h3>
+<p>美防长发言被打断表情微妙尴尬喝水<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/436380327755.shtml</code></p>
+<h3>中国实施零关税的国家已达63个</h3>
+<p>业内：半导体需求基本面依然稳固<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/037623138023.shtml</code></p>
+<h3>郑州2死2伤火灾系人为纵火 嫌犯被捕</h3>
+<p>女生考试失利高空抛物近半小时<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/201410783621.shtml</code></p>
+<h3>女子被德牧踩断肋骨查出罕见病</h3>
+<p>女生考试失利高空抛物近半小时<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/845648281265.shtml</code></p>
+<h3>美富豪换血求永生失败后克隆了自己</h3>
+<p>海钓10条鱼4条有病 当地渔业部门发声<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/563810067514.shtml</code></p>
+<h3>蜘蛛侠来B站了</h3>
+<p>今年蚊子变多了吗<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/219649758459.shtml</code></p>
+<h3>雀骨</h3>
+<p>【马林巴】少女A<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/877310010367.shtml</code></p>
+<h3>非AI生成！网友分享自家鹦鹉学唱《说唱脸谱》成果，网友：这转音太丝滑了！</h3>
+<p>Hugging Face被黑客攻击，美国模型无法帮忙，只能用 GLM，美国模型后续可能取消安全护栏吗？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/177368894597.shtml</code></p>
+<h3>Danielle发了ins</h3>
+<p>英国政府明抢中企钢厂背后<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/952982421009.shtml</code></p>
+<h3>C 罗点赞批 FIFA 腐败、偏向阿根廷的节目切片，他想表达什么？</h3>
+<p>奔跑吧·黄河篇第二季<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/695372405590.shtml</code></p>
+<h3>蜘蛛侠来B站了</h3>
+<p>《梦战：剑之海》首支实机预告片丨全球首测招募开启<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/226504713557.shtml</code></p>
+<h3>口口声声姐妹情,口供全是姐妹名!</h3>
+<p>1199所院校在河北本科批计划招生<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/120416140179.shtml</code></p>
+<h3>主体性强的人会觉得谈恋爱很无聊</h3>
+<p>田曦薇青风吹又生定妆<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/146675275761.shtml</code></p>
+<h3>女子玩梗下单游艇未付款致账号被封</h3>
+<p>习近平瞩望的“人民城市”<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/350717641088.shtml</code></p>
+<h3>这一秒过火好看吗</h3>
+<p>中国外贸增势强劲、走势稳健<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/188695336126.shtml</code></p>
+<h3>全员团灭！漫威大结局《复联5：毁灭日》正式预告解析</h3>
+<p>500岁的“鸭子” 有多潮<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/729815935961.shtml</code></p>
+<h3>谁的青春不神戳戳｜第十二期</h3>
+<p>点击即玩世界上最爽的大狗叫模拟器 【B站AI创造公开赛】<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/755247275541.shtml</code></p>
+<h3>“按骑手学历收配送费”系谣言</h3>
+<p>第一炉香<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/777998298840.shtml</code></p>
+<h3>这个夏天中国出口暴增的不只是空调</h3>
+<p>极寒末日96分钟无删减合集<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/439968256075.shtml</code></p>
+<h3>巨浪击沉游轮游客漂流5小时 有人吓吐</h3>
+<p>毒液2<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/355770020820.shtml</code></p>
+<h3>“养老服务师考试10月开考”不实</h3>
+<p>回家吃饭之一到二十五集<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/316342008296.shtml</code></p>
+<h3>蜘蛛侠:平行宇宙</h3>
+<p>🐔好 坤 不 挑 曲⚡<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/206899734698.shtml</code></p>
+<h3>加拿大邻居去世子女却忙着分尸体 的财产</h3>
+<p>媒体：孩子们的人生不能交给野路子<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/685384458680.shtml</code></p>
+<h3>一饭封神2阵容官宣</h3>
+<p>母象借管理员耙子挠痒 用完主动归还<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/680077725296.shtml</code></p>
+<h3>雷军称澎程每三年或3万km才需保养</h3>
+<p>英国为什么连续十年留不住一位首相<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/227949564746.shtml</code></p>
+<h3>为什么欧洲足球始终遥遥领先</h3>
+<p>女心理师<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/069310200238.shtml</code></p>
+<h3>日本支付公司破产 殃及数万商户</h3>
+<p>田曦薇青风吹又生定妆<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/047217109867.shtml</code></p>
+<h3>八仙上座率第一</h3>
+<p>三角洲三选一挑战赛 选手装备：少爷头少爷能拿下天才少年吗？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/822828335619.shtml</code></p>
+<h3>Kimi 员工震惊和 OpenAI 算力的差距，为什么在这么大差距下 Kimi 还能做出来 K3 ？</h3>
+<p>大学作弊被巡场导员逮到，没收了小抄，他说会向学院里求情不上报，我该怎么善后？<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/352253729683.shtml</code></p>
+<h3>关于我的小岛日常</h3>
+<p>百花杀<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/641062791678.shtml</code></p>
+<h3>92岁独居老人离世留下500万遗产</h3>
+<p>如何看待科技股反弹<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/456695122890.shtml</code></p>
+<h3>90%的人没见过…但很多人从小吃到大！</h3>
+<p>邓紫棋 歌手<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/757564521040.shtml</code></p>
+<h3>美国向韩国施压提议分享三星、SK 海力士「超额利润」，这释放了哪些信号？</h3>
+<p>今年蚊子变多了吗<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/421225304886.shtml</code></p>
+<h3>西班牙赢下“澡盆德比”意味着什么</h3>
+<p>斯塔默被拍在酒吧举杯畅饮<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/276703341826.shtml</code></p>
+<h3>沉睡花园</h3>
+<p>送你一朵小红花<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/848954193585.shtml</code></p>
+<h3>别让网络的歪风，挑拨你家人间的关系</h3>
+<p>媒体探访从小树林出圈的“26版西游记”<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/050399449843.shtml</code></p>
+<h3>西甲主席强烈批评国际足联</h3>
+<p>闯荡江湖才发现刀可以双持！<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/597665057693.shtml</code></p>
+<h3>美国3米长鲨鱼靠近游泳儿童</h3>
+<p>史上最赚世界杯<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/085101468358.shtml</code></p>
+<h3>入伏了，解暑实力排行</h3>
+<p>赵又廷：上半年只收到10个剧本<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/243465304918.shtml</code></p>
+<h3>郑州2死2伤火灾系人为纵火 嫌犯被捕</h3>
+<p>无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/374197560529.shtml</code></p>
+<h3>樊振东将缺席本届乒超联赛</h3>
+<p>冈村富夫乘高铁抵杭感叹高铁站真大<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/747724908944.shtml</code></p>
+<h3>披荆斩棘的哥哥</h3>
+<p>如何看待乌军总司令西尔斯基被解职，德拉帕特继任？<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/590635424015.shtml</code></p>
+<h3>74岁患癌老人想送一套房给56岁女友</h3>
+<p>英国政府明抢中企钢厂背后<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/486044482885.shtml</code></p>
+<h3>谢谢你们做出了这款游戏，它很好玩</h3>
+<p>今年蚊子变多了吗<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/785137918550.shtml</code></p>
+<h3>阿根廷2030潜在首发</h3>
+<p>只剩72小时！中国果断出手跨国追索<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/282463357707.shtml</code></p>
+<h3>乌克兰高层爆发严重内斗</h3>
+<p>这群大学生助力广西横州重建<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/956822392468.shtml</code></p>
+<h3>Zhuo重返TES小剧场</h3>
+<p>90%的人没见过…但很多人从小吃到大！<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/078946979626.shtml</code></p>
+<h3>速度与激情9</h3>
+<p>香港高院驳回宗馥莉上诉许可申请，判决维持18亿美元资产冻结令，宗馥莉须支付25万港元讼费，如何解读？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/943473495529.shtml</code></p>
+<h3>Kimi新模型登顶多个榜单第一</h3>
+<p>如何看待日本叫嚣松动“无核三原则”<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/040362813464.shtml</code></p>
+<h3>女子临近退休差点多等11年领养老金</h3>
+<p>习近平瞩望的“人民城市”<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/512872601272.shtml</code></p>
+<h3>还是以前的老师比较敢写评语</h3>
+<p>高中生被刺死案事发地疑为涉黄场所<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/068665259117.shtml</code></p>
+<h3>伊朗：若美袭击核设施 地区冲突升级</h3>
+<p>国台办回应陆配参选资格争议<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/095783810277.shtml</code></p>
+<h3>官方回应68元请香结账变952元</h3>
+<p>俄罗斯与白俄罗斯的集体记忆<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/209705179477.shtml</code></p>
+<h3>俄方确认普京将率团出席深圳APEC峰会</h3>
+<p>不是哥们，放火威胁律师 ？<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/762641727067.shtml</code></p>
+<h3>厦门大学福州大学录取通知书正在派送</h3>
+<p>王鹤棣孟子义新剧尺度<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/249752650980.shtml</code></p>
+<h3>有哪些家电常识「说明书上都写了，却被我们忽略了」？</h3>
+<p>真长见识啊！重庆的建筑真的太魔幻，太离谱了！<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/916495898800.shtml</code></p>
+<h3>74岁患癌老人想送一套房给56岁女友</h3>
+<p>寻找卢本伟<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/584545094549.shtml</code></p>
+<h3>每次吃完外卖后我的想法</h3>
+<p>医生提醒高温天警惕低钾血症<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/862486987783.shtml</code></p>
+<h3>田曦薇青风吹又生定妆</h3>
+<p>7旬阿姨花5千包车远行领“3亿奖金”<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/227416992299.shtml</code></p>
+<h3>曝张柏芝月中火速安排儿子返港陪谢贤</h3>
+<p>这一秒过火好看吗<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/954694645298.shtml</code></p>
+<h3>警方扣押14吨鱼后腐烂被判赔62万</h3>
+<p>外交部回应法德不愿同中国“脱钩”<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/861332908010.shtml</code></p>
+<h3>英国政府明抢中企钢厂背后</h3>
+<p>一生一世<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/190897003334.shtml</code></p>
+<h3>全红婵见到偶像黄子韬害羞</h3>
+<p>深圳地铁安检已优化<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/070340532998.shtml</code></p>
+<h3>人工智能专业“杀疯了” 分数普涨</h3>
+<p>智能变智障！低成本智能好物避坑指南！<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/556026705878.shtml</code></p>
+<h3>重庆一医生因叫“叶绿素”走红</h3>
+<p>C 罗点赞批 FIFA 腐败、偏向阿根廷的节目切片，他想表达什么？<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/295200994984.shtml</code></p>
+<h3>大狗嚼 这一口会很疯狂！</h3>
+<p>中国实施零关税的国家已达63个<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/001976813455.shtml</code></p>
+<h3>新疆测到50℃了</h3>
+<p>医生提醒高温天警惕低钾血症<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/797887213244.shtml</code></p>
+<h3>伊朗说打就打</h3>
+<p>菲方在仁爱礁上演闹剧有何意图<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/735714834611.shtml</code></p>
+<h3>第五人格</h3>
+<p>冯唐：不拜名利醉书华<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/802851617097.shtml</code></p>
+<h3>冯唐：不拜名利醉书华</h3>
+<p>史上最奇怪饭店！完全想不出来怎么赚钱<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/677961450234.shtml</code></p>
+<h3>女子玩梗下单游艇未付款致账号被封</h3>
+<p>西媒：西班牙踢法无法复制<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/830319275043.shtml</code></p>
+<h3>国台办回应台当局威胁民众审慎赴陆</h3>
+<p>江南七怪用十八年赔一条命的赌约，丘处机凭什么只出一张嘴？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/880622619430.shtml</code></p>
+<h3>史上最奇怪饭店！完全想不出来怎么赚钱</h3>
+<p>奔跑吧·黄河篇第二季<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/684038494772.shtml</code></p>
+<h3>女子隔水蒸南瓜筷子被烧成一团焦黑</h3>
+<p>找对象要找客观意义上的好人<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/964336489761.shtml</code></p>
+<h3>媒体探访从小树林出圈的“26版西游记”</h3>
+<p>开局之年看中国解码创新浙江<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/106103421379.shtml</code></p>
+<h3>有哪些家电常识「说明书上都写了，却被我们忽略了」？</h3>
+<p>NiKo跨越3067天的等待<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/996881837031.shtml</code></p>
+<h3>小娘惹</h3>
+<p>媒体：孩子们的人生不能交给野路子<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/594488803171.shtml</code></p>
+<h3>小葱：带对象回家见家长🥰啥叫男朋友是我妈的前任?😧</h3>
+<p>侯亮平如果娶的不是钟小艾，赵瑞龙欲暗杀侯亮平时会不会因姐姐一句“动了他整个赵家都承担不起”而叫停？<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/737121559495.shtml</code></p>
+<h3>AI也学会搞抽象了</h3>
+<p>小孩碰到消防喷淋 房间成水帘洞<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/719353651483.shtml</code></p>
+<h3>人社部：多项便民改革持续落地</h3>
+<p>承认吧，你也无法拒绝陈都灵这样的队友！<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/167050555337.shtml</code></p>
+<h3>离世志愿者救助小动物分期扣款仍继续</h3>
+<p>那一天，全校同学都记住了我<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/859850602540.shtml</code></p>
+<h3>刘宇宁方发声明</h3>
+<p>如何看待申真谞二比一战胜围棋人工智能“KataGo”？<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/519469888151.shtml</code></p>
+<h3>游客拿假蛇防峨眉山猴子效果显著</h3>
+<p>5分19秒546荣登历史TOP1！揭秘当代底盘电控骚操作<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/848599192672.shtml</code></p>
+<h3>史蒂夫执教中国队！【AI全民制作人】</h3>
+<p>C 罗点赞批 FIFA 腐败、偏向阿根廷的节目切片，他想表达什么？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/738100477977.shtml</code></p>
+<h3>樊振东将缺席本届乒超联赛</h3>
+<p>英国政府明抢中企钢厂背后<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/963495498356.shtml</code></p>
+<h3>美国3米长鲨鱼靠近游泳儿童</h3>
+<p>寝室睡个觉真难<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/771770569790.shtml</code></p>
+<h3>重庆一医生名叫叶绿素爆火出圈</h3>
+<p>菲方在仁爱礁上演闹剧有何意图<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/423123917837.shtml</code></p>
+<h3>女子隔水蒸南瓜筷子被烧成一团焦黑</h3>
+<p>aespa预告<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/527926542952.shtml</code></p>
+<h3>如何看待大厂员工吐槽实习生靠四处「偷」同事履历入职？为啥网友都说偷履历入职的员工是大厂自己的「福报」？</h3>
+<p>三镇主帅：郭嘉宇展示了自己的成长<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/682422837269.shtml</code></p>
+<h3>毒液2</h3>
+<p>国民党将征召6县市首长拼连任<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/058557674687.shtml</code></p>
+<h3>今年蚊子变多了吗</h3>
+<p>送别最后一位长征女红军<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/862255969193.shtml</code></p>
+<h3>巨浪击沉游轮游客漂流5小时 有人吓吐</h3>
+<p>5分19秒546荣登历史TOP1！揭秘当代底盘电控骚操作<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/377820174057.shtml</code></p>
+<h3>AI小猫逛街演我的日常</h3>
+<p>张籽沐刘楚恬15年闺蜜<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/792883229913.shtml</code></p>
+<h3>满满知识，请笑纳</h3>
+<p>荷兰将对以非法定居点实施贸易制裁<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/114690355904.shtml</code></p>
+<h3>有哪些家电常识「说明书上都写了，却被我们忽略了」？</h3>
+<p>一条老奶奶<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/483425595031.shtml</code></p>
+<h3>利润翻倍 全球存储芯片股为何崩了</h3>
+<p>媒体：孩子们的人生不能交给野路子<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/482222271260.shtml</code></p>
+<h3>俄罗斯与白俄罗斯的集体记忆</h3>
+<p>小娘惹<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/441813902316.shtml</code></p>
+<h3>谢婷婷分得谢贤5%遗产</h3>
+<p>俄罗斯远程战略轰炸机巡航日本海<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/334140255224.shtml</code></p>
+<h3>许昕回应缺席乒超：优先陪伴家庭</h3>
+<p>Danielle发了ins<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/999885704857.shtml</code></p>
+<h3>毒液2</h3>
+<p>C 罗点赞批 FIFA 腐败、偏向阿根廷的节目切片，他想表达什么？<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/833587363922.shtml</code></p>
+<h3>一大批中产抄底香港楼市</h3>
+<p>警方扣押14吨鱼后腐烂被判赔62万<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/620943706461.shtml</code></p>
+<h3>U19国足人员储备如何</h3>
+<p>印尼游轮遭浪击沉中国游客漂流数小时<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/954257361842.shtml</code></p>
+<h3>唐宁街来了个“新太医”，伯纳姆可有良策医英疾厉？</h3>
+<p>披荆斩棘的哥哥<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/322080954722.shtml</code></p>
+<h3>NiKo跨越3067天的等待</h3>
+<p>锐评功夫女足<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/376180308848.shtml</code></p>
+<h3>伯纳姆如何破解英国困局</h3>
+<p>急先锋<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/187693376397.shtml</code></p>
+<h3>小红书回应“上市因前员工举报受阻”</h3>
+<p>《我的叔叔于勒》里为什么说吃牡蛎非常优雅高贵?<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/850252381202.shtml</code></p>
+<h3>汪明荃认谢婷婷做干女儿</h3>
+<p>非AI生成！网友分享自家鹦鹉学唱《说唱脸谱》成果，网友：这转音太丝滑了！<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/679764607620.shtml</code></p>
+<h3>这些充电习惯正悄悄缩短手机寿命</h3>
+<p>印尼游轮遭浪击沉中国游客漂流数小时<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/507612417984.shtml</code></p>
 <h3>印尼游轮遭浪击沉中国游客漂流数小时</h3>
-<p>加拿大邻居去世子女却忙着分尸体 的财产<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/351621705822.shtml">www.5g.hytriu.cn/gh/details/351621705822.shtml</a></p>
-<h3>九门</h3>
-<p>甘肃水利系统多举措推进抗旱保供水<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/976351622419.shtml">http://www.blog.hytriu.cn/article/details/976351622419.shtml</a></p>
-<h3>王毅：菲军警部分势力蓄意挑衅</h3>
-<p>外交部谈菲挑衅生事<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/484920755270.shtml">www.5g.hytriu.cn/gh/details/484920755270.shtml</a></p>
-<h3>你有哪些祛魅的经历?</h3>
-<p>《 双 枪 牛 仔 》<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/765752953198.shtml">http://www.blog.hytriu.cn/article/details/765752953198.shtml</a></p>
-<h3>美国男子当街袭警被用电击枪放倒</h3>
-<p>习近平瞩望的“人民城市”<br><br>文章来源：<a href="www.5g.hytriu.cn/gh/details/054477428620.shtml">www.5g.hytriu.cn/gh/details/054477428620.shtml</a></p>
-<h3>全国最后一位长征女红军王全英逝世</h3>
-<p>如何看待科技股反弹<br><br>文章来源：<a href="http://www.blog.hytriu.cn/article/details/869532273386.shtml">http://www.blog.hytriu.cn/article/details/869532273386.shtml</a></p>
+<p>一大批中产抄底香港楼市<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/980376993960.shtml</code></p>
+<h3>还是以前的老师比较敢写评语</h3>
+<p>这一秒过火好起来了吗<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/931623622988.shtml</code></p>
+<h3>俄美元首今年或在深圳会晤</h3>
+<p>雀骨<br><br>文章来源：<code>www.5g.hytriu.cn/gh/details/791801783736.shtml</code></p>
+<h3>上海这么大的城市，下大暴雨为什么还会积水？</h3>
+<p>非AI生成！网友分享自家鹦鹉学唱《说唱脸谱》成果，网友：这转音太丝滑了！<br><br>文章来源：<code>http://www.blog.hytriu.cn/article/details/172297963112.shtml</code></p>
+<h3>患癌老人想把房子留给56岁女友</h3>
+<p>三角洲三选一挑战赛 选手装备：少爷头少爷能拿下天才少年吗？<br><br>文章来源：<code>www.5g.hytriu.cn/nojia/details/515890355088.shtml</code></p>
+<h3>论檀健次有多爱干净</h3>
+<p>因提亲一句玩笑公公送5吨西瓜<br><br>文章来源：<code>http://www.blog.hytriu.cn/jiah/details/823143768082.shtml</code></p>
